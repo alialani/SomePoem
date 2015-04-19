@@ -6,10 +6,10 @@
 
 
 
-    *The long finger of blackness is holding its head for us.*
+    *The long finger of blackness is holding its head for us*
     Dingy bue is its shade,
     comatose in movement, hazarding a slow swiftness,
-    _it inches toward us._
+    _it inches toward us_
 
     Relief comes fitfully.
     The dragon alone, an upstart
@@ -23,10 +23,10 @@
     the poverty of touch is a casket
     with love in rumbling sockets.
     Craziness is the passion of the engulfed,
-    _dribbling pleasantly._
+    _dribbling pleasantly_
 
     Presentations extended beyond and into themselves.
     Slackness schemes with invalid awareness
-    _in a brothel of hope._
+    _in a brothel of hope_
     
     http://www.public-domain-poetry.com/paul-cameron-brown/world-of-dying-love-35748
