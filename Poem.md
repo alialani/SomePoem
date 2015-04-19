@@ -2,14 +2,14 @@
 	
 #The World Of Dying Love
 
-    *By Paul Cameron Brown
+    *By Paul Cameron Brown*
 
 
 
-    *The long finger of blackness is holding its head for us.
+    *The long finger of blackness is holding its head for us.*
     Dingy bue is its shade,
     comatose in movement, hazarding a slow swiftness,
-    it inches toward us.
+    _it inches toward us._
 
     Relief comes fitfully.
     The dragon alone, an upstart
@@ -23,7 +23,7 @@
     the poverty of touch is a casket
     with love in rumbling sockets.
     Craziness is the passion of the engulfed,
-    dribbling pleasantly.
+    _dribbling pleasantly._
 
     Presentations extended beyond and into themselves.
     Slackness schemes with invalid awareness
